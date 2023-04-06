@@ -12,7 +12,8 @@ Mr Dhingia
 
 Dhingia Builds
 
-How to reach me email: contact@mrdhingia.com Twitter: @MrDhingia
+How to reach us:
+Email: contact@mrdhingia.com Twitter: @MrDhingia
 Website: www.mrdhingia.com
 
 <!---
